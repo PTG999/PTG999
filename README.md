@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects or coding ideas
 - 📫 How to reach me - gmail: ptgkalra@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I performed at a famous indian singers show on stage, Shreya Goshal!
+- ⚡ Fun fact: I love playing all sports, and I love watching american football.
 
 <!---
 PTG999/PTG999 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
